@@ -1,4 +1,4 @@
-# 
+# Top Quicken scripts pour Mac OS | Ultime Quicken scripts pour PC Windows. Avec workflows personnalisés et suivi des dépenses — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
